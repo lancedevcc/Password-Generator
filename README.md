@@ -1,0 +1,1 @@
+This Password Generator Is a REALLY STRONG Passord Generator That Saves all Your Passwords to The Passwords folder that will automatically be created in The Folder When U have created the password YOUR Paswoords WILL NOT be given or seen by anyone else then u
